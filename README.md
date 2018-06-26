@@ -27,7 +27,7 @@ hear from you!  Our email addresses are:
 
 * Chris Carroll: ccarroll@llorracc.org
 * Matthew White: mnwhite@gmail.com
-* Nathan Palmer: Nathan.Palmer@ofr.treasury.gov
+* Nathan Palmer: npalmer.professional@gmail.com
 * David Low: David.Low@cfpb.gov
 * Alexander Kaufman: akaufman10@gmail.com
 
